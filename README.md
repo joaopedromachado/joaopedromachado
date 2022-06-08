@@ -1,2 +1,2 @@
-### Olá! Eu sou o João Pedro Machado 👋
+### Olá! Eu sou o João Pedro 👋
 
